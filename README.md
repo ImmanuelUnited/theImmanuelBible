@@ -1,2 +1,2 @@
 # theImmanuelBible
-The Afromerican Immanuel Bible (Draft). Copyright 2026
+The Immanuel Bible is written in the authorship and authority of the Emissary of the Immanuel United church body, under the testament and authority also of its members worldwide. It's editing, authorizations, and its preservation are monitored and overseen by the Emissary, his council of cardinals, the council of the Shekhinar-Gittioni Priesthood, and the corporate powers of the many members of Immanuel United. 
